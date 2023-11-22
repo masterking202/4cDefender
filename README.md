@@ -1,20 +1,3 @@
 # 4cDefender
-masterking202 commented 5 minutes ago
-Screenshot_181
-Screenshot_182
-Screenshot_183
-Screenshot_184
-Screenshot_185
-Screenshot_186
-Screenshot_187
-Screenshot_188
-Screenshot_189
-Screenshot_190
-Screenshot_191
-Screenshot_192
-Screenshot_193
-Screenshot_194
-Screenshot_195
-Screenshot_196
-
+https://github.com/masterking202/4cDefender/issues
 
